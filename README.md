@@ -1,3 +1,3 @@
-### Learning and coding 🧑‍🚀
+### Probably coding right now 🧑‍🚀
 
-https://linkedin.com/in/johnsfarrell
+> [linkedin](https://linkedin.com/in/johnsfarrell) - [strava](https://www.strava.com/pros/johnfarrell)
