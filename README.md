@@ -1,4 +1,4 @@
-# John Farrell
+## John Farrell
 
 > [linkedin](https://linkedin.com/in/johnsfarrell) - [resume](https://jsfarrell.com/resume.pdf) - [github](https://github.com/johnsfarrell) - [strava](https://www.strava.com/pros/johnfarrell)
 
